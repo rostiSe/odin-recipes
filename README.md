@@ -1,0 +1,1 @@
+Something and not having to google everything, just pure coding
